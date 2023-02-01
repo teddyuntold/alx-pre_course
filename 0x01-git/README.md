@@ -1,2 +1,2 @@
-It's getting tesious
+It's getting tensious
 
